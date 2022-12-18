@@ -1,6 +1,8 @@
 - 👋 Hi, I’m Pavel
 - 👀 I’m interested in running, cycling, walking, traveling on planes and trains
 - 🌱 I’m currently learning 汉语
+- 🫖 多喝热水
+
  
 
 <!---
